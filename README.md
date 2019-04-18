@@ -9,3 +9,5 @@ Kje je bila napaka? napaka je bila na sredini nekajsada
 
 blablabla
 nsfkamsdkmasdlmasld,ačsd
+
+Še 8x gre Premzl delat pa konec. Hvala bogu da odide. 
