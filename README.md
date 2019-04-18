@@ -6,3 +6,5 @@ Kje je bila napaka? napaka je bila na sredini jsaid
 ojanfopa
 jaoufn
 
+blablabla
+
